@@ -1,4 +1,4 @@
 Processing-Databeleving-2014-2015
 =================================
 
-Alle processingdocumenten die deelwaardig zijn
+Alle processingdocumenten die deelwaardig zijn, Feedback is altijd gewenst!
